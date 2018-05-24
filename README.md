@@ -1,3 +1,5 @@
-ZaviiCoin (ZIC)
+ZNet Coin
 
-Blah, blah, blah.
+Now being Activly Maintained!
+
+Based of Altcoins
